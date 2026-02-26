@@ -8,5 +8,5 @@ Meu nome é Matheus Dela Rosa de Oliveira
 
 ### Voce pode entrar em contato comigo. 📫
 
-o.matheus06@escola.pr.gov.br
+matheusdelarosa1@gmail.com
 ![](https://media.tenor.com/i1rsgMyOFgcAAAAd/cat-cat-love.gif)
